@@ -1,4 +1,2 @@
 # s15aula2ryan
-
-
-ççççççççççççççççççççççççççççççççççççççççççççççççççççççççççççççç
+oi vaiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiiii palmeirasssssssssssssssssssssssssssssssssssssssssssssssssssss
